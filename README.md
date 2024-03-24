@@ -1,5 +1,5 @@
-About me: 
-My full name is Do Trung Quan
+About me ✨: 
+ My full name is Do Trung Quan, I'm a web developer
 
 ## 🌐Socials
 
